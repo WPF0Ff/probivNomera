@@ -1,7 +1,7 @@
 # probivNomera
 мой donationalerts - https://www.donationalerts.com/r/wpf0ff
 
-Пробив по айпи, по почте и т.д., найдете тут - https://discord.gg/HezyQ8VSRG
+Пробив по айпи, по почте и т.д., найдете тут - https://discord.gg/zDNW39HKva
 
 https:// - Сайт
 
